@@ -14,7 +14,7 @@
 
 <a href="https://us04web.zoom.us/j/9126216483?pwd=MHZzZjBIbVJ0eHZlR1NPZnhwbnNSQT09" target="_blank" rel="nofollow">**Serkan Hüseyin Gürevin**</a> ID: 9126216483 Şifre: 123456
 
-<a href="https://us04web.zoom.us/j/3239189605" target="_blank" rel="nofollow">**Yücel Alaeddinoğlu (Şifresi yok)**</a> ID: 3239189605 Şifre: ycl123
+<a href="https://us04web.zoom.us/j/3239189605?pwd=MCtLNjFkVEYwRGhZd3RIcXJWT3IxUT09" target="_blank" rel="nofollow">**Yücel Alaeddinoğlu**</a> ID: 3239189605 Şifre: ycl123
 
 ## **Her Ders Yeni ID Atanlar**
 
